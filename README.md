@@ -14,7 +14,7 @@ Hello, I'm Gowtham!👋
 
 📫 How to reach me: Email - gowtham051999@gmail.com
 
-⬇️ Connect with me here https://www.linkedin.com/in/gowtham051999/
+⬇️ Connect with me here https://www.linkedin.com/in/gowtham-m-9270b8240/
 
 😄 Pronouns: he/his
 
